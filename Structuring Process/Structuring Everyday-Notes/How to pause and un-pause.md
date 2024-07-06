@@ -1,0 +1,1 @@
+Where to start? Honestly, I feel little lost trying to explain what’s happening in my head. One side I feel I can’t do anything and on the other side I feel fully energetic and also perfectly fine. Is this the sign of burnout?
